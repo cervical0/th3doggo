@@ -1,4 +1,6 @@
 Hi, I’m th3doggo.
 - ginormous science enthusiast
 - aspiring NS major
-- food
+- badminton 
+- badminton
+- oh, also.. badminton
