@@ -1,6 +1,7 @@
-Hi, I’m th3doggo.
+hey, it's cervical0.
 - ginormous science enthusiast
-- aspiring NS major
+- aspiring med student
+- average astronomy enjoyer
 - badminton 
 - badminton
-- oh, also.. badminton
+- oh, and also.. badminton
